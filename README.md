@@ -6,6 +6,7 @@
      Contact No 📞:+91-7595829327
      Email id ✉️:biswassagnick2004@gmail.com
   ![**Languages Known:**]
+[!(https://skillicons.dev/icons?i=c)](https://skillicons.dev)
 
 
 
