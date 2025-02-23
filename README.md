@@ -5,6 +5,12 @@
 - 📫 How to reach me ...
      Contact No 📞:+91-7595829327
      Email id ✉️:biswassagnick2004@gmail.com
+##![**Languages Known:**]
+![image](https://github.com/user-attachments/assets/a16f2ffc-6159-46d4-93d0-8c737b50418e)
+![image](https://github.com/user-attachments/assets/49b925a4-f16b-4f32-af59-8bd98b11a3a5)
+![image](https://github.com/user-attachments/assets/0d6fdc31-382e-49e0-9132-a5ecf98c3027)
+
+
 
 
 <!---
